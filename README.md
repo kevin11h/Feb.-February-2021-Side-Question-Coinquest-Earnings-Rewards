@@ -19,9 +19,13 @@
 ## Referral Girl Recruiting Interview <= $10 BTC free
 
 ### Quasi Uncle Node Networks <= $20 Book $20 Wine $30 New Year Donations
-
+--------------------------------------------------
+## ~= 0.220K
+--------------------------------------------------
 ## Prev Year Emergency Evac <=== 0.2K
-
+--------------------------------------------------
+### TOT 0.220K + 0.2K ~= 0.420K
+--------------------------------------------------
 # J&F == 0.100K
 # Grassroots GFMs === 0.150K
 # China MAC Movement Peace Activism == 0.0500K
