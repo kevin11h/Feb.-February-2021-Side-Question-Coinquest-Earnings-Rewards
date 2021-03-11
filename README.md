@@ -8,17 +8,17 @@
 # ~= 2X (200%+ APP. ) / 7 mo.s time
 ## PM Appreciation @1K+ -> 2K
 
-### Liter Royale = 100 = 0.1100K
+### 1. Liter Royale = 100 = 0.1100K
 
-## Sign Sending => <$44
+## 4. Sign Sending => <$44
 
-## Learn & Earn Coinbase => ~$40 Free crypto?
+## 2. Learn & Earn Coinbase => ~$40 Free crypto?
 
-### Novel Selling=> $<18
+### 6. Novel Selling=> $<18
 
-## Referral Girl Recruiting Interview <= $10 BTC free
+## 3. Referral Girl Recruiting Interview <= $10 BTC free
 
-### Quasi Uncle Node Networks <= $20 Book $20 Wine $30 New Year Donations
+### 5. Quasi Uncle Node Networks <= $20 Book $20 Wine $30 New Year Donations
 --------------------------------------------------
 ## ~= 0.270K
 --------------------------------------------------
