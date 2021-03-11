@@ -41,7 +41,15 @@ Numismagics
 + 50 PFG ~= 30c
 + 50 PFG ~= 30c
 + 1 DEM ~= 50c
++ 2 DEM ~= 1$
++ + 2 DEM ~= 1$
 + Bad nickel = 5c
 + CA Quart = 20c
 + CA Quart = 20c
++ AGC = 1$
++ Euro > 1$ 1.2 12$ / 10
+------------------
+~$6
 
+
++ 
