@@ -50,10 +50,9 @@ Numismagics
 + Bad nickel = 5c
 + CA Quart = 20c
 + CA Quart = 20c
-+ AGC = 1$
 + Euro > 1$ 1.2 12$ / 10
 ------------------
-~$6
+~$5
 
 
 ------------------
@@ -85,3 +84,10 @@ Numismagics
 
 
 ## One troy ounce represents 31.1 grams
+
+
+### + 2,374 ARG Peso  ~= $26 1 Troy Oz AG
+### ARG AG 
+---------------------------------
+
+~ $26
