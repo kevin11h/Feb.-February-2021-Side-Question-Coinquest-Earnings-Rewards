@@ -80,3 +80,8 @@ Numismagics
 ---------------------------------
 ~ $7-$10
 
+
+
+
+
+## One troy ounce represents 31.1 grams
