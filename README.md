@@ -92,6 +92,7 @@ Numismagics
 
 ~ $26
 
+## 7 Methods Elements
 # 7 Methods Elements
 + 50 Crypto < 1 hour total
 + ~70 < 3 Days asking = 20 + 20 + 35 Direct Donations Transfer
@@ -100,3 +101,7 @@ Numismagics
 + 100 Liter - Water - Liquidity word
 + 100 Direct Action Signs ~2 mo.s x ^7 mo.s above
 + 30 Novel Selling Direct Action ~2 mo.s
+----------------------------
++ sell OPP books 100 ~3 mo.s
+
+~ S700X
