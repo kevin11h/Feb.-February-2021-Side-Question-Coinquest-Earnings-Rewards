@@ -95,8 +95,8 @@ Numismagics
 ## 7 Methods Elements
 # 7 Methods Elements
 + 50 Crypto < 1 hour total
-+ ~70 < 3 Days asking = 20 + 20 + 35 Direct Donations Transfer
-+ 200 Wind
++ ~70 < 3 Days asking = 20 + 20 + 35 Direct Digital Dividend DONATIONS Transfer PayPal GoFundMe
++ 200 Wind Autumn
 + 50 Brief
 + 100 Liter - Water - Liquidity word
 + 100 Direct Action Signs ~2 mo.s x ^7 mo.s above
@@ -105,3 +105,21 @@ Numismagics
 + sell OPP books 100 ~3 mo.s
 
 ~ S700X
+
+
+## 4
+### 777 Dan Lok Numismagic John Lee visionary, wizard azat
+#### https://github.com/kevin11h/777-Dan-Lok-Wisdom-Videos
+
+## Top 2 1.4 20% Combinations: Direct Digital Donations in BTC
++ 50 Crypto < 1 hour total
++ ~70 < 3 Days asking = 20 + 20 + 35 Direct Digital Dividend DONATIONS Transfer PayPal GoFundMe
++ 250 Inheritance / Windfall / Mercy Responsibility Stewardship, Trust.
+
++ $70+ BTC Coinbase direct digital referral rewards + $35 Direct Digital Donations Transfers Paymentality /Per 3 Days ~= $20 BTC Per Pay Day #BTC
++ $400 Safety Signs + 1st Care Kits - $40 production cost - 20% Donations GoFundMe ~~~> $250 /Per 2 Mo.s ~= $100/Per Mo. #instacart
++ $100 + $10 My Own product Cointrollership Cointrol Control Production Royalty Rights /Per 6 Mo.s ~= $15/PerMo. #AmazonDP
++ $100 Ebay OPP + $70 Misc Random OPP (/ $20 wine gift card ) ~~~>> $170 / $200 /Per 12 Mo.s ~= $10 /Per Mo. #EBay
++ $100 HPB Buy Back /Per 12 Mo.s ~=  $10/Per Mo. #smallbizlocality
+
+
