@@ -121,5 +121,3 @@ Numismagics
 + $100 + $10 My Own product Cointrollership Cointrol Control Production Royalty Rights /Per 6 Mo.s ~= $15/PerMo. #AmazonDP
 + $100 Ebay OPP + $70 Misc Random OPP (/ $20 wine gift card ) ~~~>> $170 / $200 /Per 12 Mo.s ~= $10 /Per Mo. #EBay
 + $100 HPB Buy Back /Per 12 Mo.s ~=  $10/Per Mo. #smallbizlocality
-
-
